@@ -1,6 +1,4 @@
 # I-am-ready-to-put-on-a-show
-<p align="center">
-  <img width="250" height="250" src="https://pin.it/1u0pvsPFg">
 </p>
 <p align="center">
 Berry / Ethan ⚣︎ he/they - pansexual w/male leanㅤ ᵕ̈
