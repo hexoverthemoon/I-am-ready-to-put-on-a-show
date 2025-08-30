@@ -1,7 +1,7 @@
 # hexoverthemoon
 </p>
 <p align="center">
-Berry / Ethan ⚣︎ he/they - pansexual w/male leanㅤ ᵕ̈
+Finn ⚣︎ he/they - pansexual w/male leanㅤ ᵕ̈
 <p align="center">
 ︶⊹︶︶୨୧︶︶⊹︶︶୨୧︶︶⊹︶
 <p align="center">
